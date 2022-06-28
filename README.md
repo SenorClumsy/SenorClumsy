@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @SenorClumsy 
-- 👀 I’m interested in ur mom
-- 🌱 I’m currently learning how to suduce you mom
-- 💞️ I’m looking to collaborate on your mom 
-- 📫 How to reach me  ask your mom 
+- 👀 I’m interested in Robert 
+- 🌱 I’m currently learning how to suduce Robert 
+- 💞️ I’m looking to collaborat with Robert 
+- 📫 How to reach me sharkydavy11@gmail.com also dm Robert 
 
 <!---
 SenorClumsy/SenorClumsy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
