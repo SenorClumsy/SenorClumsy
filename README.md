@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SenorClumsy 
 - 👀 I’m interested in Robert 
 - 🌱 I’m currently learning how to suduce Robert 
-- 💞️ I’m looking to collaborat with Robert 
+- 💞️ I’m looking to collaborate with Robert 
 - 📫 How to reach me sharkydavy11@gmail.com also dm Robert 
 
 <!---
